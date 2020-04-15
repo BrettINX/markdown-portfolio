@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+* making big branches
+* pickleee rickk ahaha you wouldn't get it
